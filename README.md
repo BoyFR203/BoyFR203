@@ -1,0 +1,4 @@
+- 👋 Bonjours, je suis @BoyFR203.
+- mes scripts que je fait sont toujours incomplet.
+- vous pouvez les voir les améliorer et sa me ferait plaisir de savoir qu'elle était mes erreur.
+- sur sa salut à tous.
